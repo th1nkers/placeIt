@@ -1,1 +1,0 @@
-a place where you can share your place.
